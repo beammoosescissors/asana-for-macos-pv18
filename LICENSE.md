@@ -1,4 +1,4 @@
-
+ClickUp for macOS secure Extension - voice notes and custom shortcuts is the best ClickUp for macOS extension, featuring voice notes and custom shortcuts. Safe, efficient, and
 
 
 
